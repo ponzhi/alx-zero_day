@@ -1,1 +1,1 @@
-alx is getting hot day by day
+all alx projects are getting hot and interesting
